@@ -1,6 +1,8 @@
 - 👋 Hi, I’m @denny202
-- Love cycling 
-- Interested in Blockchain 
+- When im not coding i'm cycling 🚴🏽 and Clymbing 🧗🏽
+- Love Learning 📖
+- Interested in HW/SW ⚙️ 
+- Interested in Finance 💹
 - 2.02
 
 
