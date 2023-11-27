@@ -3,6 +3,6 @@
 - Love Learning and sharing my Journey on Medium 📖
 - Interested in HW/SW ⚙️ 
 - 2.02
-My website : dantio.co.uk
-My Blog : medium.com/@dentio
+- My website : dantio.co.uk
+- My Blog : medium.com/@dentio
 
